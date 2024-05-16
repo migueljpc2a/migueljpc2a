@@ -15,4 +15,4 @@ Eu sou o Miguel 🚴‍♂️
  
 
 
-![](https://tenor.com/pt-BR/view/solo-leveling-loniyke-sung-jin-woo-ore-dake-level-up-na-ken-jin-woo-gif-6735181071928342613)
+![](https://tenor.com/pt-BR/view/sung-jin-woo-solo-leveling-hunter-hunted-ominous-gif-7760383065984096320)
